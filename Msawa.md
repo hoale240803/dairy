@@ -15,3 +15,7 @@ hôm trước nghe AC nói muốn phát triển kinh doanh nên tìm thêm 1 và
 MISAWA 2
 
 H có anh chị bạn thân quen trong SG, anh chị cũng giúp đỡ Hoà nhiều về hoạch định tài chính và tư duy làm việc các kiểu, mấy hôm trước nghe ace nói muốn phát triển kinh doanh nên tìm thêm 1 vài nhân tố có công việc làm ổn định muốn làm thêm. H cũng ko biết V hợp không, và có muốn tìm kiếm làm thêm ko
+
+MISAWA 3
+
+H có anh chị bạn thân trong SG, nghe AC nói muốn phát triển kinh doanh, hiện tại đang tìm thêm 1 vài nhân tố có công việc ổn định mà muốn làm thêm. H k biết là Ân có hợp hay không, nên mới hỏi xem sao
