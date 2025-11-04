@@ -19,3 +19,7 @@ H có anh chị bạn thân quen trong SG, anh chị cũng giúp đỡ Hoà nhi�
 MISAWA 3
 
 H có anh chị bạn thân trong SG, nghe AC nói muốn phát triển kinh doanh, hiện tại đang tìm thêm 1 vài nhân tố có công việc ổn định mà muốn làm thêm. H k biết là Ân có hợp hay không, nên mới hỏi xem sao
+
+MISAWA 4
+
+T có anh chị bạn thân trong SG, nghe AC nói muốn phát triển kinh doanh, hiện tại đang tìm thêm 1 vài nhân tố có công việc ổn định mà muốn làm thêm. T k biết là m có hợp hay không, nên mới hỏi xem sao
