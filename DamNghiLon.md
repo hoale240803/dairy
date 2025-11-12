@@ -1,0 +1,4 @@
+- Mỗi cá nhân là sản phẩm từ ý chí của chính mình
+- Niềm tin thực sự là yếu tố cơ bản và cần thiết để vươn tới thành công
+- Một người chứa đầy trong đầu những kiến thức sách vở, thực sự họ đáng giá bao nhiêu?
+- Chỉ có hành động mới giúp ta chế ngự được nỗi sợ hãi
