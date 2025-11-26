@@ -4,12 +4,10 @@ DIỄN GIẢ DOUBLE DIAMOND NGUYỄN THỊ THANH HƯƠNG & KIỀU THANH CA
 https://amwaynow.com.vn/vi/events/1590-kien-dinh-tao-nen-ky-tich cảm giác giống như nghe lâu rồi ấy, khung cảnh thật quen thuộc.
 
 MISAWA1
+
 Đợt trước, trong lúc tìm việc trên LinkedIn á, quen biết anh chị kia.
-
 Thấy anh chị hay vì cũng từ khởi nghiệp song song với việc đi làm công việc làm. Nên H cũng kết thân.
-
 Anh chị đó giúp H nhìn lại tài chính cá nhân và sắp xếp thời gian hợp lý hơn. H thấy hay là học được cách tính toán kỹ các khoản chi tiêu đầu tư các khoản.
-
 hôm trước nghe AC nói muốn phát triển kinh doanh nên tìm thêm 1 vài nhân tố có background tốt nên H nghỉ ngay đến V.
 
 MISAWA 2
@@ -23,3 +21,5 @@ H có anh chị bạn thân trong SG, nghe AC nói muốn phát triển kinh doa
 MISAWA 4
 
 T có anh chị bạn thân trong SG, nghe AC nói muốn phát triển kinh doanh, hiện tại đang tìm thêm 1 vài nhân tố có công việc ổn định mà muốn làm thêm. T k biết là m có hợp hay không, nên mới hỏi xem sao
+
+Misawa 5
